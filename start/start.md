@@ -1,0 +1,1 @@
+You wake on the floor of a dark, eerie alley in brooklyn. You wake up to the sounds of gunfire and immediately panic. You look out and realize that this is normal for the citizens that are living in the city. 
