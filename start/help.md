@@ -1,1 +1,1 @@
-Your try looking for help  
+Your try looking for help, panicking, and feeling hopeless
