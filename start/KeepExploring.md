@@ -1,0 +1,1 @@
+You get hit by a flying deluxo, which cause your death 
