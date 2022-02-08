@@ -1,0 +1,1 @@
+You spot a red door, with glowing white light behind it. Do you enter??
