@@ -1,1 +1,1 @@
-You go up to your family and try to make a converation with them but they don't know you. [Click to go to next scenario](https://github.com/alanr8742/SEP-10-PD-6-Parallel-World-/blob/main/start/parallaluniversefam.md)
+You go up to your family and try to make a converation with them but they don't know you. 
