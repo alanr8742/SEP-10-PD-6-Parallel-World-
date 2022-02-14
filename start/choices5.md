@@ -1,0 +1,2 @@
+[keep exploring](https://github.com/alanr8742/SEP-10-PD-6-Parallel-World-/blob/main/start/KeepExploring.md)  
+[dark alley](https://github.com/alanr8742/SEP-10-PD-6-Parallel-World-/blob/main/start/ally.md)
