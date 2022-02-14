@@ -1,0 +1,2 @@
+[you spy on your family](https://github.com/alanr8742/SEP-10-PD-6-Parallel-World-/blob/main/start/SpyonFamily.md)  
+[you go up to your family ](https://github.com/alanr8742/SEP-10-PD-6-Parallel-World-/blob/main/start/GotoFamily.md)
