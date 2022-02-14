@@ -1,1 +1,1 @@
-You make your way into York New City 
+[You make your way into York New City](https://github.com/alanr8742/SEP-10-PD-6-Parallel-World-/blob/main/start/choices5.md) 
