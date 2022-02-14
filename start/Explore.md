@@ -1,1 +1,1 @@
-You explore the city around you in the parallel universe 
+[You explore the city around you in the parallel universe](https://github.com/alanr8742/SEP-10-PD-6-Parallel-World-/blob/main/start/YorkNewCity.md) 
